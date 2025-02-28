@@ -1,10 +1,10 @@
 +++
-title = "About me"
+title = "Namse Lobsang"
 draft = false
+image = "bildschirmfoto-2025-02-21-um-14.00.43-2.png"
 description = ""
-image = "/img/default-author.jpg"
 +++
-![](/img/default-author.jpg)
+![](bildschirmfoto-2025-02-21-um-14.00.43-2.png)
 
 ## My Name
 
