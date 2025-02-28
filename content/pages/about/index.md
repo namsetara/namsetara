@@ -4,7 +4,7 @@ draft = false
 image = "bildschirmfoto-2025-02-21-um-14.00.43-2.png"
 description = ""
 +++
-![](bildschirmfoto-2025-02-21-um-14.00.43-2.png "Namse Lobsang")
+![](istockphoto-2155640170-1024x1024.jpg "Namse Lobsang")
 
 ## Namse Lobsang
 
