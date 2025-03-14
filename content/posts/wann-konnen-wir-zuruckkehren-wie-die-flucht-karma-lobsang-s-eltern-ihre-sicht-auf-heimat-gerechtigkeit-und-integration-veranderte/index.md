@@ -11,38 +11,24 @@ Heimat, Sicherheit, Gerechtigkeit – und die Frage nach Zugehörigkeit. Wie die
 
 {{</lead>}}
 
- 
-
 **Welche Werte haben Sie von deinen Eltern übernommen?** 
 
 Meinen Eltern war es wichtig, dass wir freundlich und ehrlich zu anderen Menschen sind. Sie legten großen Wert darauf, dass wir uns stets bemühen und auch Disziplin in allem zeigen, was wir tun.
 
- 
-
 **Inwiefern hat die Flüchtlingssituation deiner Eltern Ihre Sicht auf Heimat verändert?** 
-
-
 
 Meine Eltern sind beide aus Tibet geflüchtet, und sie haben meine Schwester und mich so erzogen, dass wir immer damit gerechnet haben, eines Tages zurückzukehren, wenn Tibet wieder frei ist. Wir haben sehr lange in der Schweiz gelebt, als wäre es ein vorübergehender Zustand. Die Frage war ständig: Wann wird Tibet frei, und wann können wir zurückkehren? Gleichzeitig wuchs ich hier auf – ich wurde in der Schweiz geboren und im Engadin aufgezogen. Ich war eng mit meinen Freundinnen und Freunden sowie dem Leben dort verbunden. Dieses Leben war Heimat für mich. Doch ebenso war auch Tibet, das meine Eltern aufgrund der chinesischen Besetzung verlassen mussten, ein Teil von Heimat. \
 Meine Sicht auf Heimat hat sich dadurch verändert, dass es nicht unbedingt ein Ort sein muss, bei dem ich das Gefühl von Heimat habe, sondern es mehr die Menschen sind. 
-
- 
 
 **Hast du Vorurteile aufgrund der Herkunft Ihrer Eltern erlebt?** 
 
 Ja, habe ich. Während der Kindheit und Jugend, waren wir eine Visible Minority, man hat uns angesehen aufgrund unserer Erscheinung, der asiatischen Erscheinung, dass wir nicht Engadiner, Engadinerinnen sind. Ich bin verschiedenen Formen von Vorurteilen begegnet. Auch von Lehrpersonen gab es Vorurteile, zum Beispiel, dass sie dachten, ich hätte gute Noten nur aus Mitleid bekommen, ohne zu erkennen, dass ich tatsächlich gute Leistungen erbracht hatte.
 
-
-
 **Wie hat die Vergangenheit deiner Eltern Ihre Perspektive auf Gerechtigkeit oder Integration beeinflusst?** 
 
 Die Flucht meiner Eltern und Großeltern sowie ihre ständige Hoffnung auf die Freiheit Tibets und eine mögliche Rückkehr haben mir gezeigt, wie ungerecht vieles in der Welt ist. Schon früh habe ich mich mit den Themen Gerechtigkeit und Gleichwertigkeit auseinandergesetzt, weil ich diese Ungerechtigkeiten direkt wahrgenommen habe. Ähnlich war es mit dem Thema Integration. Es gab immer wieder die Frage, was es eigentlich bedeutet, dazuzugehören – was muss man tun, um als integriert zu gelten, und ab wann ist man „gut integriert“? Solche Fragen haben mich bereits in jungen Jahren sehr beschäftigt.
 
-
-
-![Karma Dolma Lobsang, 58, geboren in der Schweiz]()
-
-
+![Karma Dolma Lobsang, 58, geboren in der Schweiz](bild-13.03.25-um-20.25.jpeg)
 
 **Wie hat das Leben deiner Eltern als Flüchtlinge Ihre Karriereziele beeinflusst?** 
 
@@ -59,10 +45,6 @@ Geboren 1966, Tochter von tibetischen Flüchtlingen, aufgewachsen im Engadin, au
 **Hat die Fluchtgeschichte deiner Eltern Ihre Sicht auf Sicherheit verändert?** 
 
 Für mich ist Sicherheit und Schutz ein grosses Thema ist. Wenn wir die Fluchterfahrungen meiner Eltern und meines Großvaters betrachten, der noch lange mit uns lebte und immer hoffte, in Tibet sterben zu können, was schließlich nicht der Fall war, wird deutlich, dass Sicherheit ein unerreichbares Ideal bleiben kann. Wahrscheinlich werden auch meine Eltern nicht in Tibet sterben, sondern hier, in der Schweiz. Das hat mir früh gezeigt, dass es keine absolute Sicherheit gibt, aber dass diese Sicherheit viele Menschen von Anfang an nicht erfahren. Sicherheit und Schutz sind Grundbedürfnisse, und wenn wir die vielen Kriege auf der Welt sehen und wissen, wie viele Menschen keinen Schutz haben, dann wird es beinahe zur Normalität, dass es in unserer Zeit so viele Menschen gibt, die keinen sicheren Ort kennen.
-
- 
-
-
 
 **Welche Lehren aus den Erfahrungen deiner Eltern sind für Sie heute noch relevant?** 
 
