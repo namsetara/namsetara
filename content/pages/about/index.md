@@ -8,6 +8,4 @@ description = ""
 
 ## Namse Lobsang
 
-mail@example.org
-
-Here should be some info about me...
+namse.lobsang@stud.muristalden.ch
