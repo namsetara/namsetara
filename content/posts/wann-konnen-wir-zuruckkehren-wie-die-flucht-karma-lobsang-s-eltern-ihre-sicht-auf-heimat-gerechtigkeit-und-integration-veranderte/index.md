@@ -15,10 +15,17 @@ Heimat, Sicherheit, Gerechtigkeit – und die Frage nach Zugehörigkeit. Wie die
 
 Meinen Eltern war es wichtig, dass wir freundlich und ehrlich zu anderen Menschen sind. Sie legten großen Wert darauf, dass wir uns stets bemühen und auch Disziplin in allem zeigen, was wir tun.
 
+> Meine Sicht auf Heimat hat sich dadurch verändert, dass es nicht unbedingt ein Ort sein muss, bei dem ich das Gefühl von Heimat habe, sondern es mehr die Menschen sind. 
+>
+>
+
 **Inwiefern hat die Flüchtlingssituation deiner Eltern Ihre Sicht auf Heimat verändert?** 
 
-Meine Eltern sind beide aus Tibet geflüchtet, und sie haben meine Schwester und mich so erzogen, dass wir immer damit gerechnet haben, eines Tages zurückzukehren, wenn Tibet wieder frei ist. Wir haben sehr lange in der Schweiz gelebt, als wäre es ein vorübergehender Zustand. Die Frage war ständig: Wann wird Tibet frei, und wann können wir zurückkehren? Gleichzeitig wuchs ich hier auf – ich wurde in der Schweiz geboren und im Engadin aufgezogen. Ich war eng mit meinen Freundinnen und Freunden sowie dem Leben dort verbunden. Dieses Leben war Heimat für mich. Doch ebenso war auch Tibet, das meine Eltern aufgrund der chinesischen Besetzung verlassen mussten, ein Teil von Heimat. \
-Meine Sicht auf Heimat hat sich dadurch verändert, dass es nicht unbedingt ein Ort sein muss, bei dem ich das Gefühl von Heimat habe, sondern es mehr die Menschen sind. 
+Meine Eltern sind beide aus Tibet geflüchtet, und sie haben meine Schwester und mich so erzogen, dass wir immer damit gerechnet haben, eines Tages zurückzukehren, wenn Tibet wieder frei ist. Wir haben sehr lange in der Schweiz gelebt, als wäre es ein vorübergehender Zustand. Die Frage war ständig: Wann wird Tibet frei, und wann können wir zurückkehren? Gleichzeitig wuchs ich hier auf – ich wurde in der Schweiz geboren und im Engadin aufgezogen. Ich war eng mit meinen Freundinnen und Freunden sowie dem Leben dort verbunden. Dieses Leben war Heimat für mich. Doch ebenso war auch Tibet, das meine Eltern aufgrund der chinesischen Besetzung verlassen mussten, ein Teil von Heimat. Meine Sicht auf Heimat hat sich dadurch verändert, dass es nicht unbedingt ein Ort sein muss, bei dem ich das Gefühl von Heimat habe, sondern es mehr die Menschen sind. 
+
+> Ab wann ist man „gut integriert“? Solche Fragen haben mich bereits in jungen Jahren sehr beschäftigt.
+>
+>
 
 **Hast du Vorurteile aufgrund der Herkunft Ihrer Eltern erlebt?** 
 
